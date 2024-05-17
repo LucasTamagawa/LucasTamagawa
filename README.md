@@ -1,4 +1,4 @@
-### Olá! Eu sou o Lucas Tamagawa👍👍
+### Olá! Eu sou o Lucas Tamagawa✌️
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/tamagawalucas?igsh=MXVzMmJoMTZ5cWkyMQ%3D%3D&utm_source=qr)
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/lucas-tamagawa-084a0a23b/)
